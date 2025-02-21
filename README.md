@@ -18,7 +18,7 @@
 
 ### ***[İnat TV PRO İndir](https://github.com/inattv2025/inattvpro/raw/refs/heads/main/inat-tv-pro-v21.apk)***
 
-
+### ***[İnat TV](https://inattv.rest/)***
 
 <img src="https://github.com/user-attachments/assets/cdfcbee8-dfe9-4560-bb62-3f7a187695cf" alt="inat tv" width="200"/>
 <img src="https://github.com/user-attachments/assets/fe465e64-5ff9-47c6-ad30-4607c9cb21bc" alt="inat tv pro" width="200"/>
